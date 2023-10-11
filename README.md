@@ -1,1 +1,1 @@
-# animated-eureka
+Adonicioaie Maria-Carla, grupa 3A6
